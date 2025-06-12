@@ -1,0 +1,1 @@
+This portfolio website highlights my technical skills, personal background, and project work — all in one place. Designed with a clean layout and interactive features to reflect my passion for technology and creativity
